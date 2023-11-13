@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **udonsikak13@gmail.com**
 
-- 📄 Know about my experiences [https://nsikak.tiiny.site](https://nsikak.tiiny.site)
+- 📄 Know about my experiences [https://nsikakudo.tiiny.site](https://nsikakudo.tiiny.site)
 
 - ⚡ Fun fact **I enjoy travelling and playing video games.**
 
